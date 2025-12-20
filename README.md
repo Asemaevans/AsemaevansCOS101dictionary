@@ -1,1 +1,1 @@
-African dictionary w
+African dictionary 
